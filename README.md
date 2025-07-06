@@ -1,4 +1,4 @@
-# WAn Open Letter to David Chalmers and David Bourget
+# An Open Letter to David Chalmers and David Bourget
 
 #### Holding PhilPapers Accountable: Ending Epistemic Gatekeeping and Demanding Fiduciary Transparency
 
